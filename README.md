@@ -1,3 +1,3 @@
-![maplefeather](https://litter.catbox.moe/ccmtuy0z7kvnliog.png) 
+![maplefeather](https://files.catbox.moe/l0a0bp.png) 
 
 $${\color{#e67a4c} wip}$$
